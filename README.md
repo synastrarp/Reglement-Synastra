@@ -1,1 +1,1 @@
-# Reglement-Synastra
+# Reglement Synastra
